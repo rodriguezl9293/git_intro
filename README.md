@@ -1,1 +1,2 @@
 Luis Rodriguez
+rodriuel@oregonstate.edu
